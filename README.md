@@ -1,1 +1,2 @@
-# Bot-de-Discord-Gr-tis
+# Bot-de-Discord-Grátis
+# Te-trollei-não-tem-bot-nenhum-ahuahuhuahuauahuhauhauhauhauhauhauahuahuahuahuhauhuhsauhusauhsuahahuahuhuhahauahuahuahhauhauhauhuahuahuahuahuahuahuahuhauhauhauhau
